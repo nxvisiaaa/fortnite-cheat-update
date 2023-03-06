@@ -6,12 +6,7 @@ first updated n publicated src in chapter 4
 
 Have fun pasting
 
-join my server for updates to src
+JOIN MY SERVER FOR UPDATES ELSE IT WILL GET OUTDATED FOR THE NEXT UPDATE ! 
 
-https://discord.gg/xJnRybBgGm
+https://discord.gg/pastingschool
 
-i left the source incomplete so you don't paste directly
-
-                To Paste List
-                
-                nvm i completed it
